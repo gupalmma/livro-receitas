@@ -2,4 +2,4 @@
 
 
 
-Olá, seja bem vindos ao livro de receitas da palmirinha da araraquara, aqui você pode conhecer e descobrir as mais saborosas receitas do mundo inteiro. ♥
+Olá, seja bem vindos ao meu livro de receitas , aqui você pode conhecer e descobrir as mais saborosas receitas do mundo inteiro. ♥
